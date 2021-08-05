@@ -1,0 +1,1 @@
+The secret seven are thrilled to be chosen as extras in a local play. But when a series of accidents take place on stage, they dont fell so lucky!
