@@ -1,1 +1,2 @@
 The secret seven are thrilled to be chosen as extras in a local play. But when a series of accidents take place on stage, they dont fell so lucky!
+The cast are convinced that a theatre ghost is causing the mischief, but the secret seven are not to sure.
